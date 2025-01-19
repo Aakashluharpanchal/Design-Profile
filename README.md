@@ -12,5 +12,10 @@
 
 **[Kolors Switches - Accessories](https://www.instagram.com/p/C2oJIx3p8XA/?utm_source=ig_embed&utm_campaign=loading)
 
+**[Kolors switches - Spike guard](https://www.instagram.com/p/C1Gg4soI16n/?utm_source=ig_embed&utm_campaign=loading)
+
+**[Kolors Switches - Flat Switch](https://www.instagram.com/p/CFrgo9pA_-j/?utm_source=ig_embed&utm_campaign=loading)
+
+
 
 
