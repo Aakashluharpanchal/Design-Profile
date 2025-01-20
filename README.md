@@ -1,4 +1,4 @@
-# Design-Profile
+# Design-Portfolio
 
 Note: Below are the links to the product portfolio showcasing the work and contributions made.
 
