@@ -25,5 +25,8 @@
 
 **[Kolors Switches - Downlight](https://www.instagram.com/p/BxMHMYUHPaE/?utm_source=ig_embed&utm_campaign=loading)**
 
+**[Kolors Switches - Flat Switch](https://www.instagram.com/p/B7ptZkGB2Cs/?utm_source=ig_embed&utm_campaign=loading)**
+
+
 
 
