@@ -2,7 +2,7 @@
 
 ### **FYBROS MODDULAR**
 
-**[Fybros Moddular - Glass Plate](https://www.instagram.com/p/CxEtjLgti9z/)**
+**[Fybros Moddular - Glass range](https://www.instagram.com/p/CxEtjLgti9z/)**
 
 **[Fybros Moddular - Curve Spike Guard](https://www.instagram.com/p/CngVwwwyEBV/?utm_source=ig_embed&amp;utm_campaign=loading)**
 
