@@ -26,7 +26,7 @@
 
 **[Kolors switches - Spike guard 2](https://www.instagram.com/p/C1Gg4soI16n/?utm_source=ig_embed&utm_campaign=loading)**
 
-**[Kolors Switches - Spike guard 3](https://www.instagram.com/p/C-kidlKsJ-T/?utm_source=ig_embed&utm_campaign=loading)**
+**[Kolors Switches - Spike guard 3](https://www.instagram.com/p/CO9jrE3BMKE/?utm_source=ig_embed&utm_campaign=loading)**
 
 **[Kolors Switches - Multiplug 1](https://www.instagram.com/p/CEoH3g8DDPn/?utm_source=ig_embed&utm_campaign=loading)**
 
