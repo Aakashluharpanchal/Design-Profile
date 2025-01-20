@@ -12,6 +12,8 @@
 
 **[Fybros Moddular - Stella Spike guard](https://www.instagram.com/p/Cl8hBnGM4fk/?utm_source=ig_embed&utm_campaign=loading)**
 
+**[Fybros Moddular - Multiplug 1](https://www.instagram.com/p/CczGeXIDbU_/?utm_source=ig_embed&utm_campaign=loading)**
+
 ### **KOLORS SWITCHES**
 
 **[Kolors Switches - Flat Switch](https://www.instagram.com/p/CFrgo9pA_-j/?utm_source=ig_embed&utm_campaign=loading)**
