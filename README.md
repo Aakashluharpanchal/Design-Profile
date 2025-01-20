@@ -12,10 +12,6 @@
 
 ### **KOLORS SWITCHES**
 
-**[Kolors Switches - Accessories](https://www.instagram.com/p/DAbAmRLT_yU/?utm_source=ig_embed&utm_campaign=loading)**
-
-**[Kolors Switches - Accessories](https://www.instagram.com/p/C2oJIx3p8XA/?utm_source=ig_embed&utm_campaign=loading)**
-
 **[Kolors Switches - Flat Switch](https://www.instagram.com/p/CFrgo9pA_-j/?utm_source=ig_embed&utm_campaign=loading)**
 
 **[Kolors Switches - Downlight](https://www.instagram.com/p/BxMHMYUHPaE/?utm_source=ig_embed&utm_campaign=loading)**
@@ -32,7 +28,11 @@
 
 **[Kolors Switches - Multiplug 1](https://www.instagram.com/p/CEoH3g8DDPn/?utm_source=ig_embed&utm_campaign=loading)**
 
+**[Kolors Switches - Accessories 1](https://www.instagram.com/p/C0-197do_bn/?utm_source=ig_embed&utm_campaign=loading)**
 
+**[Kolors Switches - Accessories 2](https://www.instagram.com/p/DAbAmRLT_yU/?utm_source=ig_embed&utm_campaign=loading)**
+
+**[Kolors Switches - Accessories 3](https://www.instagram.com/p/C2oJIx3p8XA/?utm_source=ig_embed&utm_campaign=loading)**
 
 
 
