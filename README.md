@@ -8,6 +8,9 @@
 
 **[Fybros Moddular - Series 11 Plate](https://www.instagram.com/reel/CsQRTSHLp-2/?utm_source=ig_embed&utm_campaign=loading)**
 
+**[Fybros Moddular - Proximity sensor](https://www.instagram.com/p/Ce7bJrqsHin/?utm_source=ig_embed&utm_campaign=loading)**
+
+
 ### **KOLORS SWITCHES**
 
 **[Kolors Switches - Accessories](https://www.instagram.com/p/DAbAmRLT_yU/?utm_source=ig_embed&utm_campaign=loading)**
