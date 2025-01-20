@@ -1,6 +1,6 @@
 # Design-Profile
 
-***FYBROS MODDULAR
+### ***FYBROS MODDULAR
 
 **[Fybros Moddular - Glass Plate](https://www.instagram.com/p/CxEtjLgti9z/)
 
@@ -8,7 +8,7 @@
 
 **[Fybros Moddular - Economical Plate](https://www.instagram.com/reel/CsQRTSHLp-2/?utm_source=ig_embed&utm_campaign=loading)
 
-***KOLORS SWITCHES
+### ***KOLORS SWITCHES
 
 **[Kolors Switches - Accessories](https://www.instagram.com/p/DAbAmRLT_yU/?utm_source=ig_embed&utm_campaign=loading)
 
