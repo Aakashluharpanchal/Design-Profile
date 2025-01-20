@@ -1,10 +1,14 @@
 # Design-Profile
 
+***FYBROS MODDULAR
+
 **[Fybros Moddular - Glass Plate](https://www.instagram.com/p/CxEtjLgti9z/)
 
 **[Fybros Moddular - Spike Guard](https://www.instagram.com/p/CngVwwwyEBV/?utm_source=ig_embed&amp;utm_campaign=loading)
 
 **[Fybros Moddular - Economical Plate](https://www.instagram.com/reel/CsQRTSHLp-2/?utm_source=ig_embed&utm_campaign=loading)
+
+***KOLORS SWITCHES
 
 **[Kolors Switches - Accessories](https://www.instagram.com/p/DAbAmRLT_yU/?utm_source=ig_embed&utm_campaign=loading)
 
@@ -16,6 +20,7 @@
 
 **[Kolors Switches - Flat Switch](https://www.instagram.com/p/CFrgo9pA_-j/?utm_source=ig_embed&utm_campaign=loading)
 
+**[Kolors Switches - Downlight](https://www.instagram.com/p/BxMHMYUHPaE/?utm_source=ig_embed&utm_campaign=loading)
 
 
 
