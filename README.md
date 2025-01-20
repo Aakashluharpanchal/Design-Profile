@@ -1,5 +1,7 @@
 # Design-Profile
 
+Note: Below are the links to the product portfolio showcasing the work and contributions made.
+
 ### **FYBROS MODDULAR**
 
 **[Fybros Moddular - Glass range](https://www.instagram.com/p/CxEtjLgti9z/)**
