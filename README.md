@@ -46,7 +46,7 @@ Note: Below are the links to the product portfolio showcasing the work and contr
 
 ### **ROSANA TOOLS**
 
-![2D Robot](Rosana_tools_Robot.jpg)
+![2D Robot](2d_robot.jpg)
 
 ### **Mumbai University**
 
