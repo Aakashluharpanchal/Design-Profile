@@ -18,6 +18,8 @@ Note: Below are the links to the product portfolio showcasing the work and contr
 
 **[Fybros Moddular - Economical range](https://www.instagram.com/reel/C-wjBocqEIm/?utm_source=ig_embed&utm_campaign=loading)**
 
+[![Watch Video](Proximitysensoroperatedswitch.mp4)](Proximitysensoroperatedswitch.mp4)
+
 ### **KOLORS SWITCHES**
 
 **[Kolors Switches - Flat Switch](https://www.instagram.com/p/CFrgo9pA_-j/?utm_source=ig_embed&utm_campaign=loading)**
